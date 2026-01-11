@@ -1,4 +1,4 @@
-　<p align="center"><img src="https://komarev.com/ghpvc/?username=minebranzycraft&color=D543C0&label=branzylings" alt="Centered Image"> <br></p>
+　<p align="center"><img src="https://komarev.com/ghpvc/?username=minebranzycraft&color=D543C0&label=redstoners" alt="Centered Image"> <br></p>
  <p align="center"><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/2cc55209-8260-4fe8-9c17-4ef0b9ab7766" /></p>
  ⠀⠀
  <p align="center">wwelcome to my github!!  ( ˶ˆ꒳ˆ˵ )</p>
