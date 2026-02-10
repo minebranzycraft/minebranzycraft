@@ -12,8 +12,6 @@
 <p align="center">my basic dni ( " -_- ) </p>
 <p align="center"> • dont int if your older than 21 and younger than 13 unless your friends w my friends </p>
 <p align="center"> • if your a proshipper PLEASE dont interact w me its a win win i dont int w u and u dont int w me </p>
-<p align="center"> • dont be rude unless your jokely doing it or your friends w me!  </p>
 <p align="center"> • just basic dni critera i block freely always </p>
 <p align="center"> • dont make SH / super sexual jokes around me , please keep them to yourself </p>
-<p align="center"> • SUPER mentally ill people dont int w me , dont hate me for me please </p>
 ⠀⠀<p align="center"><img width="340" height="70" alt="image" src="https://github.com/user-attachments/assets/d4953ad1-bbc6-46b2-a810-ce2a4a2321b5" /></p>
